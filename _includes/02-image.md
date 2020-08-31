@@ -1,0 +1,1 @@
+![Image of Anders Österholm as a 10-year-old](https://www.gstatic.com/tv/thumb/persons/675908/675908_v9_ba.jpg)
